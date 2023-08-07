@@ -1,2 +1,2 @@
 # dividend
-dividendMIssion
+죄송합니다. 레포스토리 만들고 했는 부분까지 올릴려고 했는데 푸시가 계속 안되네요.  
